@@ -14,6 +14,9 @@
 
 #banner
 
+![Storm Clouds](https://github.com/user-attachments/assets/313b858f-a04e-49f2-bf0a-745354a640bc)
+
+
 
 # -About me 
 Hey, I’m Stinger, a 22-year-old gamer and content creator. I’m all about good vibes, meaningful conversations, and a love for 3D design and animation. When I’m not gaming, I’m working on improving myself and building toward my dreams. Let’s connect, chill, and have some fun!
