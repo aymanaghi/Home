@@ -35,6 +35,9 @@ https://steamcommunity.com/profiles/76561198387074680/tradeoffers/
 #Discord 
 
 
+#Reddit 
+https://www.reddit.com/r/lebanongg/
+
 #Steam Group
 https://steamcommunity.com/groups/Lebanongg
 
