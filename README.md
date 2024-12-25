@@ -13,8 +13,6 @@
 
 
 
-#banner
-
 ![Storm Clouds](https://github.com/user-attachments/assets/313b858f-a04e-49f2-bf0a-745354a640bc)
 
 
