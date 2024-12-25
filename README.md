@@ -9,11 +9,7 @@
  
 ```
 
-               ![2d50447f43629295ebf91fd23ef37db4ea73d90f_full](https://github.com/user-attachments/assets/1e9d2eac-22fe-4ebd-b960-ef0448ab97bb)
 
-
-
-                ![Storm Clouds](https://github.com/user-attachments/assets/313b858f-a04e-49f2-bf0a-745354a640bc)
 
 
 
