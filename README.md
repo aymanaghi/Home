@@ -9,6 +9,7 @@
  
 ```
 
+![2d50447f43629295ebf91fd23ef37db4ea73d90f_full](https://github.com/user-attachments/assets/1e9d2eac-22fe-4ebd-b960-ef0448ab97bb)
 
 
 
@@ -19,7 +20,12 @@
 
 
 # -About me 
-Hey, I’m Stinger, a 22-year-old gamer and content creator. I’m all about good vibes, meaningful conversations, and a love for 3D design and animation. When I’m not gaming, I’m working on improving myself and building toward my dreams. Let’s connect, chill, and have some fun!
+"Well hello there, I’m Stinger, a 22-year-old gamer and content creator. 
+I’m all about good vibes, meaningful conversations, and love for 3D design and animation. 
+When I’m plugged into the Matrix, I’m working on improving myself and building toward my dreams. 
+
+Let’s connect, chill, and have some fun!"
+
 
 
 # Specs-
@@ -47,8 +53,7 @@ https://steamcommunity.com/groups/Lebanongg
 
 
 
-#Whish List 
-I still need few things to have proper streaming set up,you dont have too but be patient and watch me building my spaceship <3 
+ #Whish List I still need few things to have proper streaming set up,you dont have too but be patient and watch me building my spaceship ❤️
 
 
 #![Screenshot 2024-12-23 010104](https://github.com/user-attachments/assets/fb30dc54-7b19-40a4-955b-e529e878a3a0)
