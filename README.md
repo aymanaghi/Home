@@ -27,7 +27,7 @@ Let’s connect, chill, and have some fun!"
 
 
 # Specs-
-![image](https://github.com/user-attachments/assets/40b26a62-1079-4213-91cc-cdf8c106b10d)
+
 
 #Add me on steam 
 https://steamcommunity.com/profiles/76561198387074680/        
