@@ -50,7 +50,8 @@ https://steamcommunity.com/groups/Lebanongg
  #Whish List I still need few things to have proper streaming set up,you dont have too but be patient and watch me building my spaceship ❤️
 
 
-#![Screenshot 2024-12-23 010104](https://github.com/user-attachments/assets/fb30dc54-7b19-40a4-955b-e529e878a3a0)
+![image](https://github.com/user-attachments/assets/615de4ca-42b8-4c9c-aca0-3482389baf59)
+
 
 
 
