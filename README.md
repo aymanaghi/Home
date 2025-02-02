@@ -24,6 +24,11 @@ Let’s connect, chill, and have some fun!"
 
 # Specs-
 
+Geforce rtx 3070
+
+![image](https://github.com/user-attachments/assets/2e8aa299-4042-4c2d-a66b-787b5480518b)
+
+
 
 #Add me on steam 
 https://steamcommunity.com/profiles/76561198387074680/        
