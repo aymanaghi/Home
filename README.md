@@ -43,13 +43,6 @@ https://steamcommunity.com/profiles/76561198387074680/tradeoffers/
 #Reddit 
 https://www.reddit.com/r/lebanongg/
 
-#Steam Group
-https://steamcommunity.com/groups/Lebanongg
-
-#My most played games
-
-![image](https://github.com/user-attachments/assets/3589d147-1b3b-4191-b3c4-05208b29279c)
-
 
 
 
